@@ -7,3 +7,4 @@ It is always nice to wear my lederhose in the winter.
 The Klimaanlage also has to be set to super hot or else I get chilly.
 My mom and I always loved to listen to the Rammstein in concert.
 When we went to the concert, we were sure to throw on our lederhose and stop for a stein. 
+The artist drove there in a Porsche, proabably why the tickets were so expensive.
